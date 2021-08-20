@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @manuxtroncoso
+- 👀 I’m interested in informatic security 
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on any project 
+- 📫 How to reach me ... @manuelxtroncoso 
